@@ -1,2 +1,4 @@
 # -PRACTICAL-EXCEL-SUPPLY-CHAIN-CHEATSHEET.
 PRACTICAL-EXCEL-SUPPLY-CHAIN-CHEATSHEET
+
+![Black and Red Professional Business Youtube Thumbnail](https://github.com/adnanmajeed82/-PRACTICAL-EXCEL-SUPPLY-CHAIN-CHEATSHEET./assets/49750395/e7dc296d-95f9-430c-a5af-0fc7fea6281f)
